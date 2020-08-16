@@ -3,14 +3,14 @@
 # (11) General Interference with Organizations and Production
 
 ## (a) Organizations and Conferences
-(1) Insist on doing everything through "channels." Never permit short-cuts to be taken in order to, expedite decisions.
+(1) Insist on doing everything through "channels." Never permit short-cuts to be taken in order to expedite decisions.
 <br>(2) Make "speeches." Talk as frequently as possible and at great length. Illustrate your "points" by long anecdotes and accounts of personal experiences. Never hesitate to make a few appropriate "patriotic" comments.
-<br>(3) When possible, refer all matters to committees, for "further study and consideration." Attempt to make the committees as large as possible - never less than five.
+<br>(3) When possible, refer all matters to committees, for "further study and consideration." Attempt to make the committees as large as possible -- never less than five.
 <br>(4) Bring up irrelevant issues as frequently as possible.
 <br>(5) Haggle over precise wordings of communications, minutes, resolutions.
 <br>(6) Refer back to matters decided upon at the last meeting and attempt to reopen the question of the advisability of that decision.
 <br>(7) Advocate "caution." Be "reasonable" and urge your fellow-conferees to be "reasonable" and avoid haste which might result in embarrassments or difficulties later on.
-<br>(8) Be worried about the propriety of any decision -raise the question of whether such action as is contemplated lies within the jurisdiction of the group or whether it might conflict with the policy of some higher echelon.
+<br>(8) Be worried about the propriety of any decision -- raise the question of whether such action as is contemplated lies within the jurisdiction of the group or whether it might conflict with the policy of some higher echelon.
 
 ## (b) Managers and Supervisors
 (1) Demand written orders.
