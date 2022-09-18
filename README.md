@@ -1,4 +1,4 @@
-# [Simple Sabotage Field Manual](https://www.cia.gov/news-information/featured-story-archive/2012-featured-story-archive/CleanedUOSSSimpleSabotage_sm.pdf)
+# [Simple Sabotage Field Manual](https://www.hsdl.org/?abstract&did=750070)
 
 # (11) General Interference with Organizations and Production
 
